@@ -1,2 +1,2 @@
 # verifica-daniele-sbrighi
-repository per la verifica
+si prega di leggere il file readme
