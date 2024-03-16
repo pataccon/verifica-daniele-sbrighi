@@ -1,2 +1,2 @@
 # verifica-daniele-sbrighi
-si prega di leggere il file readme
+si prega di leggere il file readme leggilooooo
